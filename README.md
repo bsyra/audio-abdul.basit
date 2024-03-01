@@ -1,1 +1,0 @@
-# bsyra-abdul.basit
